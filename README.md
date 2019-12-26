@@ -1,5 +1,5 @@
 # Life story
-Hello their nice to see you drop in wanna hear a little story? If not its all good You can skip to the end for a brief summary but otherwise buckleup were going for a ride.
+Hello their nice to see you drop in wanna hear a little story? better buckleup were going for a ride.
 
 It's the year 2006 inside a private christian school, in this school is a young boy with aspirations that seemed so large that He would never be able to obtain them wether that be a Firefighting a Police officer or even a proFootball player. hmm cough cough Joshua can I talk to you a moment? 
 
